@@ -1,7 +1,7 @@
 ## 
 ## Olá, seja bem vindo ao meu perfil!
 
-- 🐱‍👤 Criado em 2000 e atualmente com 22 anos !! 🎁
+- 🐱‍👤 Since 2000 e atualmente com 24 anos !! 🎁
 - 📬 Vivendo atualmente no Paraná.
 
 
