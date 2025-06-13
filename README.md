@@ -1,12 +1,8 @@
 ## 
-## Olá, seja bem vindo ao meu perfil!
+## Olá, seja bem vindo!
 
-- 🐱‍👤 Since 2000 e atualmente com 24 anos !! 🎁
-- 📬 Vivendo atualmente no Paraná.
-
-
-- ⛏⚒ Construindo minha carreira... 🎨
-
+- Nascido em 2000, atualmente com 24 anos.
+- 📬 Moro na região metropolitana de Curitiba-PR.
 - E-mail 📩 savionauf@hotmail.com
 
 ##
