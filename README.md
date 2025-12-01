@@ -3,6 +3,7 @@
 
 - Curitiba - PR
 - E-mail 📩 savionauf@hotmail.com
+- Linkedin https://www.linkedin.com/in/s%C3%A1vio-nauf-661025222/
 
 ##
 
